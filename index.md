@@ -1,9 +1,6 @@
 # Privacy Policy  
 ## Overview  
 
-# Privacy Policy  
-## Overview  
-
 
 
 This Privacy Policy describes the information collected by funworks in our mobile applications and website and how we use that information.
